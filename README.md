@@ -1,2 +1,0 @@
-# nadear.github.io
-learnning
